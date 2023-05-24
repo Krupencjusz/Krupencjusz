@@ -1,0 +1,5 @@
+- Hello I’m Krupencjus
+- I'm beginer in Programing
+- I’m interested in Playing games
+- I’m currently learning C++ 
+- If for some reason you want contact with me you can text on discord Krupencjusz#0366.
